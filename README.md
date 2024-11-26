@@ -30,3 +30,5 @@ Builds a sense of community and collaboration by leveraging referrals.
 3️⃣ Earn points for every referral you make and get rewarded with extra coins!
 
 SAMEBORN Telegram Bot: https://telegram.me/SAMEBORN_bot
+
+**Stay Tuned for the announcements**: https://t.me/+RWjP9jsZRmcyMmU0
